@@ -1,2 +1,0 @@
-# onepiece
-teorias y mas 
